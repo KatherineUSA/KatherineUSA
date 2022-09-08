@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Katherine, Talent Acquisition Specialist w/ VectorUSA
+- 👀 I’m interested in connecting with you
+- 💞️ I’m looking to hire IT proffesionals in Los Angeles, CA, San Diego,CA, Rancho Cucamonga,CA,  Scottsdale, AZ, and Charlotte, NC
+- 📫 How to reach me is on LinkedIn✨ https://www.linkedin.com/in/katherine-lapierre-795010244 ✨
